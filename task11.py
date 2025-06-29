@@ -1,0 +1,1 @@
+#ishlay olmadim
